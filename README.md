@@ -1,9 +1,12 @@
-Hii this is Amit ''🙂
+Hii this is a21amit ''🙂
+
+To stay in touch may look at insta @a21_amit for any query.
+
 
 <!--
 __ 
 
-**a21amit/a21amit** is a ✨ _special_ ✨
+**a21amit** is a ✨ _special_ ✨
 
 Some things to be shared on:
 
