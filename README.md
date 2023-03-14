@@ -1,6 +1,6 @@
 Hii this is a21amit ''🙂
 
-To stay in touch may look at insta @a21_amit for any query.
+To stay in touch may look at insta @a21shots for any query.
 
 
 <!--
